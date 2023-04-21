@@ -1,0 +1,76 @@
+---
+url: /resources/articles-news/world-prayer-today/2022/03/23/how-to-put-the-past-behind-you
+title: "How to put the past behind you"
+description: "Thru the Bible with Dr. J. Vernon McGee - Taking the whole Word to the whole world"
+---
+
+
+
+
+
+
+## 
+ How to put the past behind you
+
+
+March 23, 2022
+![]()
+
+
+
+
+***Brethren, I do not count myself to have apprehended; but one thing I do, forgetting those things which are behind and reaching forward to those things which are ahead, I press toward the goal for the prize of the upward call of God in Christ Jesus.*** –Philippians 3:13, 14
+
+Do bad decisions or harsh words you’ve spoken keep you up at night? Do you spend time wishing you could change the mistakes you’ve made? If so, you’re not alone. This listener in Angola can relate:
+
+*“After a few years in prison, I’m now on probation. It has been difficult for me to reintegrate into society. People look down on me, and I am filled with shame for things I’ve done. Your programs are helping me understand that God has forgiven me and accepts me as I am. Please pray that I can let go of my past and move forward by following Jesus.”*
+
+That’s a great request. Today let’s intercede for everyone on the Bible Bus struggling with the past. As we turn to God with our sin, asking for forgiveness and repenting, may we be reminded that He both forgives us, forgets it (Jeremiah 31:34), and calls us to move forward with confidence in Him.
+
+Want to learn more? Download Dr. McGee’s free digital booklet, [“Forget About It: How to Put the Past Behind You.”](/docs/default-source/Booklets/ttb_forget-about-it.pdf?sfvrsn=d91a1e16_2)
+
+**Tomorrow we travel to the country of Gabon to join a friend in a very important prayer. See you there.**
+
+[Listen here to TTB-African Portuguese.](https://ttb.twr.org/home/day,97/language,POR-AFR)
+
+
+
+Categories: 
+
+
+* Africa
+* Portuguese (African)
+
+
+
+
+
+
+
+
+
+## 
+ Browse Posts by Subject
+
+
+* [Apostasy](/resources/articles-news/-in-tags/tags/Apostasy)
+* [Bible study](/resources/articles-news/-in-tags/tags/Bible-study)
+* [Christian living](/resources/articles-news/-in-tags/tags/Christian-living)
+* [Christmas](/resources/articles-news/-in-tags/tags/Christmas)
+* [Dr. J. Vernon McGee](/resources/articles-news/-in-tags/tags/Dr-J-Vernon-McGee)
+* [Easter](/resources/articles-news/-in-tags/tags/easter)
+* [Faith](/resources/articles-news/-in-tags/tags/Faith)
+* [Gregg Harris](/resources/articles-news/-in-tags/tags/Gregg-Harris)
+* [International](/resources/articles-news/-in-tags/tags/International)
+* [Prayer](/resources/articles-news/-in-tags/tags/prayer)
+* [Prophecy](/resources/articles-news/-in-tags/tags/Prophecy)
+* [Salvation](/resources/articles-news/-in-tags/tags/Salvation)
+* [Sin](/resources/articles-news/-in-tags/tags/sin)
+* [Suffering & Comfort](/resources/articles-news/-in-tags/tags/Suffering-Comfort)
+* [Worship](/resources/articles-news/-in-tags/tags/worship)
+
+
+
+
+
+

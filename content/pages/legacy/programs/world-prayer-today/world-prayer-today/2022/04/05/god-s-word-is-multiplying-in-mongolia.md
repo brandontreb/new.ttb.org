@@ -1,0 +1,52 @@
+---
+url: /programs/world-prayer-today/world-prayer-today/2022/04/05/god-s-word-is-multiplying-in-mongolia
+title: "God’s Word is multiplying in Mongolia"
+description: "Thru the Bible with Dr. J. Vernon McGee - Taking the whole Word to the whole world"
+---
+
+
+
+
+
+
+## 
+ God’s Word is multiplying in Mongolia
+
+
+April 05, 2022
+
+
+
+
+*“I want to know more about Jesus Christ and the Word of the Bible.”*
+
+That’s what Batchuluun in Mongolia told the pastor of his small church, and here’s what happened next:
+
+*“My pastor smiled and gave me a radio device. He told me to listen to your program and then begin to share what I’m learning with others. Quickly my Bible knowledge improved. Several weeks ago, our church had a little quiz about Scripture. I did so well I was invited to come speak about how I was learning. Several people afterwards asked if they could borrow the device or listen with me. Thank you for helping our church learn more about Jesus and get excited about the Bible. I am praying God uses this device and me to share with others in our area.”*
+
+Today let’s thank God for Batchuluun, his pastor, and all those who share God’s Word in Mongolia. Ask Him to multiply their ministries and use THRU the BIBLE in Mongolian to excite others about the Good News of Jesus Christ. 
+
+Do you know someone who wants to know more about Jesus? Download a few of [these free resources](/resources/how-can-i-know-god) today and share them.
+
+**We’re praying through the spiritually dark island of Taiwan tomorrow.** 
+
+
+
+
+
+
+
+## 
+
+
+
+
+[Be Up to Date](http://feeds.feedburner.com/WorldPrayerToday "World Prayer Today RSS Feed")
+Join our World Prayer Team
+[Why join the  
+
+World Prayer Team?](http://ttb.org/resources/articles-news/news/2017/03/26/keep-it-up-world-prayer-team!)
+
+
+
+

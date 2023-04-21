@@ -1,0 +1,52 @@
+---
+url: /programs/world-prayer-today/world-prayer-today/2022/07/01/finding-certainty-about-salvation
+title: "Finding certainty about salvation"
+description: "Thru the Bible with Dr. J. Vernon McGee - Taking the whole Word to the whole world"
+---
+
+
+
+
+
+
+## 
+ Finding certainty about salvation
+
+
+July 01, 2022
+
+
+
+
+**“God offers eternal life—everlasting life—to those who believe in Jesus Christ. This gift is given the moment you believe, but it continues through eternity. It is not temporary or uncertain or paid out over time. It’s completely yours the moment you trust Jesus Christ.”** -Dr. J. Vernon McGee
+
+Can you know for certain you are saved and forever a child of God? That’s the question a listener wrestles with who joins us on the Bible Bus in Lesotho. Here’s his story:
+
+*“My life has been changed listening to your teaching. God**’s Word offers so much to a sinner like me. I would like to grow deeper in my faith, especially in my belief in salvation. I desperately want eternal life, but I do not deserve it. Can you tell me if I’m really going to heaven? If not, what do I need to do?”*
+
+Well,  thank God for this listener’s humble heart. The truth is none of us deserve God’s offer of salvation. And since the weight of it all falls on Him, we don’t have to doubt that we’re not good enough (we never could be). Thanks be to God for His grace to save and keep us. Praise God for His Word, too, that comforts us through God’s Spirit, who assures us we are His own. 
+
+Are you skeptical about your eternal future? Download Dr. McGee’s free digital booklet, [”Rest Assured: Conquering Your Doubts About Your Salvation.”](/docs/default-source/Booklets/ttb_rest-assured.pdf?sfvrsn=9071e16_4)
+
+**Good things are happening with God’s Word in eastern Africa. Join us next week as we praise God and pray for His people.**
+
+
+
+
+
+
+
+## 
+
+
+
+
+[Be Up to Date](http://feeds.feedburner.com/WorldPrayerToday "World Prayer Today RSS Feed")
+Join our World Prayer Team
+[Why join the  
+
+World Prayer Team?](http://ttb.org/resources/articles-news/news/2017/03/26/keep-it-up-world-prayer-team!)
+
+
+
+

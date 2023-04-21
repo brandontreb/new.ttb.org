@@ -1,0 +1,87 @@
+---
+url: /resources/articles-news/world-prayer-today/2021/09/01/pray-for-haiti-a-special-prayer-request-from-gregg-harris
+title: "Pray for Haiti: A special prayer request from Gregg Harris"
+description: "Thru the Bible with Dr. J. Vernon McGee - Taking the whole Word to the whole world"
+---
+
+
+
+
+
+
+## 
+ Pray for Haiti: A special prayer request from Gregg Harris
+
+
+September 01, 2021
+![]()
+
+
+
+
+
+*“One thing we’ve
+heard from people all around the world when they are suffering is that in
+addition to tangible physical help, they also need spiritual
+encouragement.”*  -Gregg Harris
+
+Already
+one of the world’s most impoverished nations, the 7.2 earthquake that hit Haiti
+on August 14 has once again devastated the country. More than 2,000 are dead,
+countless others are injured and missing, and even more are left without
+shelter and water.
+
+As
+we continue to pray for God’s grace to be poured out through the many relief agencies
+and workers serving as Jesus’ hands and feet on the ground, THRU the BIBLE’s
+president Gregg Harris asks us to also pray specifically for God’s Word as it
+goes out twice a day on THRU the BIBLE.
+
+  
+Despite
+the aftershocks, the devastation, and the despair, we know God is at work
+through His Word and in the hearts of His people. Today let’s thank Him for
+being near to those who are hurting and ask Him to encourage them in ways only
+He can.
+
+
+
+Categories: 
+
+
+* Creole
+* Latin America
+
+
+
+
+
+
+
+
+
+## 
+ Browse Posts by Subject
+
+
+* [Apostasy](/resources/articles-news/-in-tags/tags/Apostasy)
+* [Bible study](/resources/articles-news/-in-tags/tags/Bible-study)
+* [Christian living](/resources/articles-news/-in-tags/tags/Christian-living)
+* [Christmas](/resources/articles-news/-in-tags/tags/Christmas)
+* [Dr. J. Vernon McGee](/resources/articles-news/-in-tags/tags/Dr-J-Vernon-McGee)
+* [Easter](/resources/articles-news/-in-tags/tags/easter)
+* [Faith](/resources/articles-news/-in-tags/tags/Faith)
+* [Gregg Harris](/resources/articles-news/-in-tags/tags/Gregg-Harris)
+* [International](/resources/articles-news/-in-tags/tags/International)
+* [Prayer](/resources/articles-news/-in-tags/tags/prayer)
+* [Prophecy](/resources/articles-news/-in-tags/tags/Prophecy)
+* [Salvation](/resources/articles-news/-in-tags/tags/Salvation)
+* [Sin](/resources/articles-news/-in-tags/tags/sin)
+* [Suffering & Comfort](/resources/articles-news/-in-tags/tags/Suffering-Comfort)
+* [Worship](/resources/articles-news/-in-tags/tags/worship)
+
+
+
+
+
+

@@ -1,0 +1,80 @@
+---
+url: /resources/articles-news/world-prayer-today/2017/09/01/god-has-changed-my-life-completely!
+title: "“God has changed my life completely!”"
+description: "Thru the Bible with Dr. J. Vernon McGee - Taking the whole Word to the whole world"
+---
+
+
+
+
+
+
+## 
+ “God has changed my life completely!”
+
+
+September 01, 2017
+![]()
+
+
+
+
+### *“God has changed my life completely!”* That’s the good news we hear today from a listener in Maharashtra, India.
+
+
+He continues:
+
+
+*“I did not have a very happy childhood. There was little peace and we were very poor. With great difficulty, I studied up to high school, but lack of funds prevented me from studying further. I was disappointed when I had to begin farming to make my living.*
+
+
+*“Then one day, I heard about Jesus on your Deccani language program. I was intrigued to learn that He is the only Savior, and so I accepted Him as my Lord and King. Since that time, there is a newfound peace and joy in my life. Jesus has answered all my prayers and provided me with everything that I need … even crops that are prospering.* 
+
+
+*“My parents, too, have accepted Jesus, but we are the only Christians in my village. We do not have a church and your program is our only source for the Word of God. Please keep broadcasting so we may continue to grow spiritually.”*
+
+
+Praise God for the power of His Word to change our lives! Today let’s pray that more people in Maharashtra, India, will hear the truth on *Thru the Bible* and be saved. 
+
+
+**On Monday we’re off to Indonesia. Hop aboard and pray with us!**
+
+Categories: 
+
+
+* South Asia
+* Deccani
+
+
+
+
+
+
+
+
+
+## 
+ Browse Posts by Subject
+
+
+* [Apostasy](/resources/articles-news/-in-tags/tags/Apostasy)
+* [Bible study](/resources/articles-news/-in-tags/tags/Bible-study)
+* [Christian living](/resources/articles-news/-in-tags/tags/Christian-living)
+* [Christmas](/resources/articles-news/-in-tags/tags/Christmas)
+* [Dr. J. Vernon McGee](/resources/articles-news/-in-tags/tags/Dr-J-Vernon-McGee)
+* [Easter](/resources/articles-news/-in-tags/tags/easter)
+* [Faith](/resources/articles-news/-in-tags/tags/Faith)
+* [Gregg Harris](/resources/articles-news/-in-tags/tags/Gregg-Harris)
+* [International](/resources/articles-news/-in-tags/tags/International)
+* [Prayer](/resources/articles-news/-in-tags/tags/prayer)
+* [Prophecy](/resources/articles-news/-in-tags/tags/Prophecy)
+* [Salvation](/resources/articles-news/-in-tags/tags/Salvation)
+* [Sin](/resources/articles-news/-in-tags/tags/sin)
+* [Suffering & Comfort](/resources/articles-news/-in-tags/tags/Suffering-Comfort)
+* [Worship](/resources/articles-news/-in-tags/tags/worship)
+
+
+
+
+
+

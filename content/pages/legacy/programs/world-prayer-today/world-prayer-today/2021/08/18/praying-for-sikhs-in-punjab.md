@@ -1,0 +1,58 @@
+---
+url: /programs/world-prayer-today/world-prayer-today/2021/08/18/praying-for-sikhs-in-punjab
+title: "Praying for Sikhs in Punjab"
+description: "Thru the Bible with Dr. J. Vernon McGee - Taking the whole Word to the whole world"
+---
+
+
+
+
+
+
+## 
+ Praying for Sikhs in Punjab
+
+
+August 18, 2021
+
+
+
+
+***I******f you confess with your mouth the Lord Jesus and believe in your heart that God has raised Him from the dead, you will be saved.***-Romans 10:9 
+
+ A trip to the province of Punjab isn’t complete without visiting the Golden Temple in Amritsar. It’s also the perfect place to stop and pray for the more than 23 million believers of Sikhism worldwide (with most living here in Punjab).   
+
+ Fewer than 20% of Sikhs know a Christian and in some people groups and regions, the name of Jesus has never been heard. However, God’s Word proclaimed on THRU the BIBLE in the language of Punjabi is making inroads. As one listener tells us: 
+
+*“I have been listening to your programs for one month. In your teaching on Romans 10, I learned that salvation is possible only through Jesus Christ. I have accepted Jesus Christ as my Savior and Lord. I shall continue listening so I can learn and also be ready to share this important information. Please pray for my family—that they too may know the Lord.”*   
+
+
+Today let’s pray more people in Punjab hear God’s Word and understand the truth of Romans 10. Through them may the lives of those around them be changed as well. “Faith comes by hearing, and hearing by the word of God” (Romans 10:17). 
+
+ Interested in learning more about the deep and powerful truths found in the book of Romans? Download Dr. McGee’s free booklet, [“One Hour in Romans,”](/docs/default-source/Booklets/ttb_one-hour-in-romans.pdf?sfvrsn=99ef1e16_2) today. 
+
+**A listener of THRU the BIBLE in Hindi experiences the truth of 2 Corinthians 5:17. Join us for his terrific story tomorrow.**   
+
+
+[Listen here to TTB-Punjabi.](https://ttb.twr.org/home/day,0301/language,PAN)
+
+
+
+
+
+
+
+## 
+
+
+
+
+[Be Up to Date](http://feeds.feedburner.com/WorldPrayerToday "World Prayer Today RSS Feed")
+Join our World Prayer Team
+[Why join the  
+
+World Prayer Team?](http://ttb.org/resources/articles-news/news/2017/03/26/keep-it-up-world-prayer-team!)
+
+
+
+

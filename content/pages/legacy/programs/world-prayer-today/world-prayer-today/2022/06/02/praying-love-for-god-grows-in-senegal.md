@@ -1,0 +1,48 @@
+---
+url: /programs/world-prayer-today/world-prayer-today/2022/06/02/praying-love-for-god-grows-in-senegal
+title: "Praying love for God grows in Senegal"
+description: "Thru the Bible with Dr. J. Vernon McGee - Taking the whole Word to the whole world"
+---
+
+
+
+
+
+
+## 
+ Praying love for God grows in Senegal
+
+
+June 02, 2022
+
+
+
+
+In Senegal, more than 90% of the population follows Islam. Today as we pray our way through this diverse and spiritually open country, ask God to use His Word to take hold of listeners’ hearts like this one:
+
+*“Thank you very much for all your teachings, which are so instructive. I come from a Muslim background, but after my conversion there were so many things that I did not understand, and through this teaching and the help of the Holy Spirit I now have answers. Please keep teaching. My love for God grows each time I open His book with you.”*
+
+**Tomorrow we’ll meet on our knees in Niger.**
+
+[Listen here to TTB-Pular.](https://ttb.twr.org/home/day,0423/language,FUF)
+
+
+
+
+
+
+
+## 
+
+
+
+
+[Be Up to Date](http://feeds.feedburner.com/WorldPrayerToday "World Prayer Today RSS Feed")
+Join our World Prayer Team
+[Why join the  
+
+World Prayer Team?](http://ttb.org/resources/articles-news/news/2017/03/26/keep-it-up-world-prayer-team!)
+
+
+
+

@@ -1,0 +1,26 @@
+<table>
+  <thead>
+      <tr>
+          <th>City</th>
+          <th>Station</th>
+          <th>Time</th>
+          <th>Day(s)</th>
+          <th>Program</th>
+      </tr>
+  </thead>
+  <tbody>
+      {{- $rows := split (string .Inner) "\n" -}}
+      {{- range $index, $row := $rows -}}
+          {{- $columns := split (string $row) "|" -}}
+          {{- if gt (len $columns) 2 -}}
+              <tr>
+                  {{- range $index, $column := $columns -}}
+                      {{- if gt (len $column) 0 -}}
+                          <td>{{- trim $column "|" -}}</td>
+                      {{- end -}}
+                  {{- end -}}
+              </tr>
+          {{- end -}}
+      {{- end -}}
+  </tbody>
+</table>

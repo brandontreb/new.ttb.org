@@ -1,0 +1,79 @@
+---
+url: /resources/articles-news/world-prayer-today/2019/02/06/thank-god-for-open-doors-in-senegal
+title: "Thank God for open doors in Senegal"
+description: "Thru the Bible with Dr. J. Vernon McGee - Taking the whole Word to the whole world"
+---
+
+
+
+
+
+
+## 
+ Thank God for open doors in Senegal
+
+
+February 06, 2019
+![]()
+
+
+
+
+The capital city of Senegal, Dakar, pokes out like an arrow into the Atlantic Ocean as the westernmost point of Africa. To wander the capital city’s streets and markets is a lesson in multicultural arts and traditions, as vibrant as it is diverse. 
+
+
+Home to at least a dozen different ethnic groups, Senegal is not your typical African nation. It is a stable democracy that works to be a cultural and political bridge between Africa and other Muslim nations. They also pride themselves on ideals of acceptance—reaching across political platforms and extending religious freedom. 
+
+
+Ninety percent of Senegalese people are Muslim, but the gospel is making inroads into this open nation. One short text from a Senegal listener sums it up, 
+
+
+*“This is the first time I have heard such news of Jesus. Pray that I hear what is true.”* 
+
+
+Pray today for an *open* door to the broadcast of *Thru the Bible* in Senegal. Pray for more Senegalese listeners like this one who reflects an *open* heart. Ask for continued favor for God’s Word to be heard through this strategic country’s *open* attitude. 
+
+
+**Our mission to travel on our knees through every country of the world extends tomorrow to Angola. See you then.** 
+
+
+
+Categories: 
+
+
+* Africa
+* Pular
+
+
+
+
+
+
+
+
+
+## 
+ Browse Posts by Subject
+
+
+* [Apostasy](/resources/articles-news/-in-tags/tags/Apostasy)
+* [Bible study](/resources/articles-news/-in-tags/tags/Bible-study)
+* [Christian living](/resources/articles-news/-in-tags/tags/Christian-living)
+* [Christmas](/resources/articles-news/-in-tags/tags/Christmas)
+* [Dr. J. Vernon McGee](/resources/articles-news/-in-tags/tags/Dr-J-Vernon-McGee)
+* [Easter](/resources/articles-news/-in-tags/tags/easter)
+* [Faith](/resources/articles-news/-in-tags/tags/Faith)
+* [Gregg Harris](/resources/articles-news/-in-tags/tags/Gregg-Harris)
+* [International](/resources/articles-news/-in-tags/tags/International)
+* [Prayer](/resources/articles-news/-in-tags/tags/prayer)
+* [Prophecy](/resources/articles-news/-in-tags/tags/Prophecy)
+* [Salvation](/resources/articles-news/-in-tags/tags/Salvation)
+* [Sin](/resources/articles-news/-in-tags/tags/sin)
+* [Suffering & Comfort](/resources/articles-news/-in-tags/tags/Suffering-Comfort)
+* [Worship](/resources/articles-news/-in-tags/tags/worship)
+
+
+
+
+
+

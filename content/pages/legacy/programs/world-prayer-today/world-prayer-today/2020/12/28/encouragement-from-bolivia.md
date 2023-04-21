@@ -1,0 +1,48 @@
+---
+url: /programs/world-prayer-today/world-prayer-today/2020/12/28/encouragement-from-bolivia
+title: "Encouragement from Bolivia"
+description: "Thru the Bible with Dr. J. Vernon McGee - Taking the whole Word to the whole world"
+---
+
+
+
+
+
+
+## 
+ Encouragement from Bolivia
+
+
+December 28, 2020
+
+
+
+
+Few things are more uplifting than hearing encouragement from a fellow Bible Bus passenger. As our journey of praise and prayer continues, we meet with Andrés in Bolivia who listens in his language of Quechua. 
+
+*“I live in the Pueblo Nuevo community of Bolivia. I have a small sugar cane plantation and citrus plants. I live alone, my wife passed away about four years ago and my children are married and live in other places. The most beautiful company I have is the radio, and it plays all the time. In the early morning, I listen to your program first. I learn a lot about the Christian life and how God is so merciful to us. When the program ends, I pray to the Lord, giving thanks for all those who listen to* Thru the Bible. *I have my breakfast and go to work, well strengthened and encouraged with the Word of God. I am asking God to increase your teaching around the world and bless each of you as you labor in His fields while I labor in mine.”*
+
+Praise God for the work He has done in our hearts as we’ve studied His Word this year. Thank Him today for our fellow World Prayer Team members across the United States and around the world.
+
+**After a stroke, a listener in Senegal gives up complaining and lives a life of triumph and joy through Jesus Christ. Hear her inspiring story tomorrow as our journey of praise continues.**
+
+
+
+
+
+
+
+## 
+
+
+
+
+[Be Up to Date](http://feeds.feedburner.com/WorldPrayerToday "World Prayer Today RSS Feed")
+Join our World Prayer Team
+[Why join the  
+
+World Prayer Team?](http://ttb.org/resources/articles-news/news/2017/03/26/keep-it-up-world-prayer-team!)
+
+
+
+

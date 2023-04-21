@@ -1,0 +1,52 @@
+---
+url: /programs/world-prayer-today/world-prayer-today/2021/07/15/praying-ephesians-6-for-christians-in-haiti
+title: "Praying Ephesians 6 for Christians in Haiti"
+description: "Thru the Bible with Dr. J. Vernon McGee - Taking the whole Word to the whole world"
+---
+
+
+
+
+
+
+## 
+ Praying Ephesians 6 for Christians in Haiti
+
+
+July 15, 2021
+
+
+
+
+***Finally, my brethren, be strong in the Lord and in the power of His might. Put on the whole armor of God, that you may be able to stand against the wiles of the devil. For we do not wrestle against flesh and blood, but against principalities, against powers, against the rulers ofthe darkness of this age, against spiritual hosts of wickedness in the heavenly places. Therefore, take up the whole armor of God, that you may be able to withstand in the evil day, and having done all, to stand.*** -Ephesians 6:10-13
+
+Welcome, World Prayer Team. Today as we travel through Haiti, we find that while 75% of Haitians choose Christianity as their religion, most are involved in rites and rituals, including practices of voodoo. But praise God, increasing numbers of His faithful are boldly speaking out against it.
+
+Today we stand with these brothers and sisters in prayer and ask God to deliver Haitian Christians from the bondage and sin of dark practices and shine His light into each corner of this beautiful, tiny island nation.
+
+Together let’s start with Ephesians 6, praying each one takes up the full armor of God and resists all the works of the enemy. Pray they walk in Spirit and truth, clothed in the righteousness of our Savior Jesus, and speak boldly as His ambassadors.
+
+**A listener in Mexico tells us why Zechariah 4:6 is important to her. Join and pray tomorrow as our journey through Central America and the Caribbean ends.**
+
+[Listen here to TTB-Creole.](https://ttb.twr.org/home/day,0931/language,HAT)
+
+
+
+
+
+
+
+## 
+
+
+
+
+[Be Up to Date](http://feeds.feedburner.com/WorldPrayerToday "World Prayer Today RSS Feed")
+Join our World Prayer Team
+[Why join the  
+
+World Prayer Team?](http://ttb.org/resources/articles-news/news/2017/03/26/keep-it-up-world-prayer-team!)
+
+
+
+
