@@ -1,12 +1,10 @@
 ---
-url: /why-i-love-the-bible
-title: "Why I Love the Bible"
-description: "Thru the Bible with Dr. J. Vernon McGee - Taking the whole Word to the whole world"
+url: "/why-i-love-the-bible"
+title: Why I Love the Bible!
+description: Thru the Bible with Dr. J. Vernon McGee - Taking the whole Word to the
+  whole world
+
 ---
-
-
-
-
 ## We Want to See Your Face
 
 
@@ -83,9 +81,3 @@ Please note that while we will include as many voices as we can, not everyone wi
 
 
 I hereby authorize Thru the Bible to use and edit the submitted video content - my name, likeness, image, voice and participation in and performance on film, tape or otherwise for use in the stated project above or parts thereof. I agree that the footage may be edited and otherwise altered at the sole discretion of the Producer and used in whole or in part for any and all broadcasting, non-broadcasting, audio/visual, and/or exhibition purposes in any manner or media.
-
-
-
-
-
-
