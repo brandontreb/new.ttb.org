@@ -1,4 +1,19 @@
 ---
 label: Pages
 hide_body: false
-fields: []
+fields:
+- name: url
+  type: text
+  config:
+    required: false
+  label: URL
+- name: title
+  type: text
+  config:
+    required: false
+  label: Title
+- name: description
+  type: text
+  config:
+    required: false
+  label: Description
