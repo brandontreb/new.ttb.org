@@ -1,16 +1,18 @@
 ---
-title: 'Hold On'
-date: "2016-06-01 07:01:00.600000"
-slug: /features/2016/06/01/hold-on
-date: 2016-06-01 07:01:00.600000
-publishDate: 2016-06-01 07:01:00
+title: Hold On!
+date: 2016-06-01T07:01:00.600+00:00
+slug: "/features/2016/06/01/hold-on"
+publishDate: 2016-06-01T07:01:00.000+00:00
 blog: features
-summary: Jacob found out that you do not get anywhere with God by struggling and resisting. The only way that you get anywhere with Him is by yielding and just holding on to Him.
+summary: Jacob found out that you do not get anywhere with God by struggling and resisting.
+  The only way that you get anywhere with Him is by yielding and just holding on to
+  Him.
 categories: 
 tags:
- - Salvation
- - Christian-living
- - Dr-J-Vernon-McGee
+- Salvation
+- Christian-living
+- Dr-J-Vernon-McGee
+
 ---
 ***And Jacob was left alone; and there wrestled a man with him until the breaking of the day.*** – Genesis 32:24
 
@@ -43,5 +45,3 @@ What happens now? Jacob is just holding on; he’s not wrestling. He is just hol
 
 
 - Dr. J. Vernon McGee, from *Edited Messages on Genesis*
-
-
