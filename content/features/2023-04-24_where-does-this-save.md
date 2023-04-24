@@ -6,7 +6,7 @@ date: 2023-04-24T20:57:40.122Z
 ---
 #﻿ Heading
 
--﻿ list
--﻿ list
 -﻿ foo
 -﻿ bar
+
+!﻿[](static/images/uploads/coach-beard-ted-lasso.gif)
