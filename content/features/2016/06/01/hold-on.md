@@ -1,5 +1,5 @@
 ---
-title: Hold On!
+title: 'Hold On!'
 date: 2016-06-01T07:01:00.600+00:00
 slug: "/features/2016/06/01/hold-on"
 publishDate: 2016-06-01T07:01:00.000+00:00
