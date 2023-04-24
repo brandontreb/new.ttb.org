@@ -2,7 +2,6 @@
 title: 'The Book of Life'
 date: "2016-03-08 21:26:25.033000"
 slug: /features/2016/03/07/the-book-of-life
-date: 2016-03-08 21:26:25.033000
 publishDate: 2016-03-07 20:11:00
 blog: features
 summary: The Bible is the book to face life with today, and it’s the book which lays out the only sure route through this world and on into the next. It is the only book that can enable you to meet the emergencies and cushion the shocks that come to you in life. So shouldn't you study and know it?

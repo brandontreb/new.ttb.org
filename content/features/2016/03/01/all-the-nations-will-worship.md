@@ -2,7 +2,6 @@
 title: 'All the Nations Will Worship'
 date: "2016-03-08 21:20:18.310000"
 slug: /features/2016/03/01/all-the-nations-will-worship
-date: 2016-03-08 21:20:18.310000
 publishDate: 2016-03-01 20:11:00
 blog: features
 summary: We are not living in a Christian nation, but there will come a day when every nation will worship Him. This knowledge should cause us to take heart. The day will come when God will remove the rebellious men and leave only those who will worship Him.

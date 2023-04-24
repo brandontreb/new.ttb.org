@@ -2,7 +2,6 @@
 title: 'God With Us'
 date: "2016-06-27 22:57:31.073000"
 url: /features/2016/06/27/god-with-us
-date: 2016-06-27 22:57:31.073000
 publishDate: 2016-06-27 22:57:29.950000
 blog: features
 summary: Emmanuel means “God with us.” He can’t be Emmanuel, God with us, unless He is virgin born. And  unless He is Emmanuel, He cannot be Jesus, the Savior. This truth about the One who came down to this earth is one of the most wonderful things in the Bible.

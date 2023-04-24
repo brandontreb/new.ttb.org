@@ -2,7 +2,6 @@
 title: 'The Bitterness of Eating from the Sweet Book'
 date: "2016-03-08 21:16:47.397000"
 slug: /features/2016/02/01/the-bitterness-of-eating-from-the-sweet-book
-date: 2016-03-08 21:16:47.397000
 publishDate: 2016-02-01 20:11:00
 blog: features
 summary: Many begin the study of prophecy with enthusiasm, but when they find that it is applicable to their life and that it makes demands on them personally, they lose interest, and it becomes a bitter thing. But it should be in your mouth sweet as honey. 

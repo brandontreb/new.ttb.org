@@ -2,7 +2,6 @@
 title: 'The Temperature of the Church'
 date: "2015-11-05 20:11:22.120000"
 slug: /features/2016/01/03/the-temperature-of-the-church
-date: 2015-11-05 20:11:22.120000
 publishDate: 2016-01-03 20:11:00
 blog: features
 summary: Between the states of hot and cold, you have lukewarm. That's where many churches today attempt to position themselves. But Jesus very frankly says that He will spew them out of His mouth.

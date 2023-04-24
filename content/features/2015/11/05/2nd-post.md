@@ -2,7 +2,6 @@
 title: '2nd post'
 date: "2015-11-05 20:11:33.413000"
 slug: /features/2015/11/05/2nd-post
-date: 2015-11-05 20:11:33.413000
 publishDate: 2015-11-05 20:11:33.383000
 blog: features
 categories: 

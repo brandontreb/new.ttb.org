@@ -2,7 +2,6 @@
 title: 'Bird Watching'
 date: "2016-04-23 03:01:35.307000"
 slug: /features/2016/04/23/bird-watching
-date: 2016-04-23 03:01:35.307000
 publishDate: 2016-04-23 02:59:00
 blog: features
 summary: There's a great spiritual lesson in the two birds that Noah sent forth over the waters covering the flooded earth. One represented the old man and one the new. One loved the things of this world and one found no rest. The important question is, which bird are you?
