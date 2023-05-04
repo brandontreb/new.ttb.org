@@ -1,8 +1,17 @@
 backend:
-  name: github
-  repo: brandontreb/new.ttb.org
-  branch: main
-  publish_mode: editorial_workflow
+  name: git-gateway
+
+local_backend:
+  # when using a custom proxy server port
+  url: http://localhost:8082/api/v1
+  # when accessing the local site from a host other than 'localhost' or '127.0.0.1'
+  allowed_hosts: ['192.168.0.1']
+  
+# backend:
+#   name: github
+#   repo: brandontreb/new.ttb.org
+#   branch: main
+
 media_folder: "static/images/uploads" # Media files will be stored in the repo under static/images/uploads
 public_folder: "/images/uploads"
 collections:
@@ -13,10 +22,12 @@ collections:
   slug: "{{year}}-{{month}}-{{day}}_{{slug}}" # Filename template, e.g., YYYY-MM-DD-title.md
   nested:
       depth: 100 # max depth to show in the collection tree
-      summary: '{{title}}'
+      summary: '{{title}}'  
   fields: # The fields for each document, usually in front matter
     - {label: "Layout", name: "layout", widget: "hidden", default: "blog"}
     - {label: "Title", name: "title", widget: "string"}
+    - {label: "Draft", name: "draft", widget: "boolean", default: false, required: false}
     - {label: "Slug", name: "slug", widget: "string"}
     - {label: "Publish Date", name: "date", widget: "datetime"}    
     - {label: "Body", name: "body", widget: "markdown"}
+  meta: { path: { widget: string, label: 'Path', index_file: 'index' } }

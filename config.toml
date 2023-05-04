@@ -2,3 +2,5 @@ baseURL = 'http://example.org/'
 languageCode = 'en-us'
 title = 'ttb.org'
 theme = 'paper'
+[params]
+  mainSections = ['features']

@@ -10,10 +10,14 @@
       <!-- Note that the content for index.html, as a sort of list page, will pull from content/_index.md -->
       {{ .Content }}
     </div>
-    <div>
-      {{ range first 10 .Site.RegularPages }}
-          {{ .Render "summary" }}
+    <ul>
+      {{ range (where .Site.Pages "Section" "features") }}
+        {{ range .Pages }}
+          <li>
+            <a href="{{.Permalink}}">{{ .Title }}</a>
+          </li>
+        {{ end }}
       {{ end }}
-    </div>
+        </ul>
   </main>
 {{ end }}
